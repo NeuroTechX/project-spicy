@@ -1,0 +1,6 @@
+ 
+JDG Data Notes:
+
+...
+
+...
